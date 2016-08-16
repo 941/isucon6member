@@ -23,7 +23,7 @@ https://github.com/941/isucon6member/issues/
 
 ↓ 
 
-idobataの「ISUCON5メンバー募集」に入り相談してチームメンバーを決めてください。
+idobataの「ISUCON6メンバー募集」に入り相談してチームメンバーを決めてください。
 https://idobata.io/organizations/ISUCON6/rooms/ISUCON6_member/join_request/4ec1426c-192c-4103-bf0a-a9d1768e259d
 
 ↓
